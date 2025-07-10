@@ -59,5 +59,5 @@ By analyzing real employee records, we identified high-risk segments and gave HR
 
 ## 📬 Connect With Me
 
-🔗 LinkedIn: [your-link-here]  
-📧 Email: [your-email@example.com]  
+🔗 LinkedIn: https://www.linkedin.com/in/eekshith-sai-kandukuri-79b50a289/recent-activity/all/  
+📧 Email: kandukuri.sai23@st.niituniversity.in  
